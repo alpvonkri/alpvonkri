@@ -1,5 +1,4 @@
-<h1 align="center">Hi 👋, I'm AlpVonKri</h1>
-
+- 👋 Hi, I’m AlpVonKri
 - 📫 How to reach me... **https://telegram.dog/AlpVonKri**
 
 <!---
