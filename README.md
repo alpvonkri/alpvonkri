@@ -1,10 +1,10 @@
 ## Marco "AlpVonKri" Flores
 
-You're entering the AlpVonKri realm, be afraid, be very afraid.
+You're entering the **AlpVonKri** realm, be afraid, be very afraid... 🤔
 
-The one that rules it all, is always watching...
+The one that rules it all, is always watching... 🔭
 
-You've been warned...
+You've been warned... ⚡
 
 
 <!---
